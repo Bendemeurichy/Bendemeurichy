@@ -1,7 +1,7 @@
 # Hi, I’m @Bendemeurichy
 ### I’m a computer science student at Ghent University
 #### I’m looking to collaborate on anything that learns me something new
-#### reach me on [Twitter](https://twitter.com/BMeurichy) | [Linkedin](https://www.linkedin.com/in/ben-de-meurichy-93a0a1237)
+#### reach me on [Linkedin](https://www.linkedin.com/in/ben-de-meurichy-93a0a1237)
 
 <br />
 
